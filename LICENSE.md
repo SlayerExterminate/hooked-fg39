@@ -1,4 +1,4 @@
-
+Experience hooked like never before with hooked Script instant, the #1 Script. Includes custom skins and instant win for unbeatable performance.
 
 
 
